@@ -112,3 +112,28 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### High Protein Tiramisu 
+
+Ingredients: 
+- 1.5 cups rolled oats
+- 2 bananas
+- 45g protein powder
+- 2 heaping tsps instant coffee mixed with boiling water (30ml total)
+- 1 cup milk (use milk of your preference)
+- 1 tsp baking powder
+- Dark chocolate chips (measured with your heart)
+Topping:
+- Vanilla Yogurt
+- Cocoa powder
+
+Instructions:
+1. Preheat oven to 350 degrees F
+2. Mash bananas in shallow baking pan
+3. Add in oats, protein powder, instant coffee (mixed with hot water), baking powder, and dark chocolate
+4. Pour and mix milk to ensure you get a cakey texture. If too wet add more oats, if too dry add more milk. 
+5. Bake for 25 minutes.
+6. After 25 minutes, take out of oven and let cool for 15 minutes.
+Top cake base with even vanilla yogurt layer 
+7. Sprinkle cocoa powder on top of yogurt layer
+8. Enjoy!
