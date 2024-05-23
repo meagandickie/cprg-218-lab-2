@@ -20,13 +20,16 @@ Ingredients:
 - 1 cup grated Parmesan cheese
 - 1/2 cup shredded mozzarella cheese
 - 2 cloves garlic, minced
+- 1/4 cup capers (drained and pat dry)
 
 Instructions:
 1. Preheat oven to 350°F.
 2. In a large mixing bowl, combine all ingredients.
 3. Transfer mixture to a 9-inch pie plate or a small baking dish.
 4. Bake for 20-25 minutes or until lightly browned and bubbly.
-5. Serve hot with tortilla chips, pita chips, or crackers.
+5. On a sauce pan on medium heat, fry capers in a tablespoon of olive oil until they are crispy and golden. 
+6. Serve hot with tortilla chips, pita chips, or crackers.
+7. Top with crispy capers and enjoy. 
 
 ### Bruschetta
 
